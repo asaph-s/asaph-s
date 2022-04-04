@@ -1,1 +1,2 @@
-only for fun projects :-)
+forfun/portfolio projects only :-) 
+
